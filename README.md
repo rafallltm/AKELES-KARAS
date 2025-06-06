@@ -1,0 +1,2 @@
+> **Autoria:** Todo conteúdo musical deste repositório é de autoria de Wagner Teles das Mercês (Teleswagner030@gmail.com, TEL/ZAP 21-974094911).  
+> **Uso autorizado apenas para fins pessoais e de divulgação não comercial. Para uso comercial, contate o autor.**
